@@ -1,1 +1,1 @@
-![image](https://github.com/jusupm/BootCampDBeaver/assets/98189162/4c87a1a3-614b-4eb8-9093-ab25c521a0d1)
+![image](https://github.com/jusupm/BootCampDBeaver/assets/98189162/c18fb6ee-a968-4511-a157-3e2690c5cb7f)
